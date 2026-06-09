@@ -1,4 +1,4 @@
-# 
+# Léger Camtasia flux de travail pour Mac OS | Instantané Camtasia flux de travail pour PC Windows. Avec normalisation et export 4K — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
